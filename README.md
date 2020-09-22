@@ -1,1 +1,1 @@
-![Social_dino-with-hat](https://user-images.githubusercontent.com/44608522/93779781-8741ac00-fc51-11ea-93e6-afb0967627b5.gif)
+![ezgif-1-5c51c7ab8631](https://user-images.githubusercontent.com/44608522/93840734-9fe6ac00-fcbb-11ea-83d6-034dc76bbef6.png)
