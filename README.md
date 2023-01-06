@@ -1,1 +1,1 @@
-![ezgif-1-5c51c7ab8631](https://raw.githubusercontent.com/madushadhanushka/github-readme/output/github-contribution-snake.svg)
+![snake gif](https://github.com/WahyuS002/WahyuS002/blob/output/github-contribution-grid-snake.gif)
